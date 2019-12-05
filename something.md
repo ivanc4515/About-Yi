@@ -1,10 +1,11 @@
 Hi, I'm Yi
-I like food and sleeping
+I like rainbow snakes and sleeping
 also my phone
 and tiktok
 I also leik soup
 Ivan is SMRT
 (Ivan): ye
+MY RAINBOW SNAKE IS POOPING APPLES
 I'm a mess
 I'm a looser
 I'm a hater
